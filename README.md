@@ -3,6 +3,6 @@ Para a projeção do projeto do aplicativo da Clínica médica a Climed será de
 
 Integrantes Dulcineia Gustavo Júlia
 
-https://wordpress.com/page/dulcycandida.wordpress.com/90
+https://dulcycandida.wordpress.com/2023/07/08/climed/
 
-https://dulcycandidacom.wordpress.com
+
